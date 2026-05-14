@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with escape tsunami for brainrots new Scripts, featuring god mode and undetectable. Download now to dominate every match with ease and
 
 
 
